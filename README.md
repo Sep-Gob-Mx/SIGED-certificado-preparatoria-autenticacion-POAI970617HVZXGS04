@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-POAI970617HVZXGS04
+POAI970617HVZXGS04
